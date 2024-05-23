@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Prerna Patil 
 - 👀 I’m interested in computer 
 - 🌱 I’m currently learning  java and DSA 
-- 💞️ I’m looking to collaborate on hackthons with JAVA languages 
+- 💞️ I’m looking to collaborate on hackthons in JAVA 
 - 📫 How to reach me  you can simply gmail me 
 - 😄 Pronouns: her 
 - ⚡ Fun fact: That I can do Sketching , painting on Canvas as well as on Walls even 
