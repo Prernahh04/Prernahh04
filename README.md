@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer as well as Art 
 - 🌱 I’m currently learning  java and DSA 
 - 💞️ I’m looking to collaborate on hackthons in JAVA 
-- 📫  you can simply gmail me 
+- 📫  you can simply gmail me or Follow me on Instagram
 - 😄 Pronouns: her 
 - ⚡ Fun fact: That I can do Sketching , painting on Canvas as well as on Walls even 
 
