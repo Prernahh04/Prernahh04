@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Prerna Patil 
-- 👀 I’m interested in computer 
+- 👀 I’m interested in computer as well as Art 
 - 🌱 I’m currently learning  java and DSA 
 - 💞️ I’m looking to collaborate on hackthons in JAVA 
 - 📫 How to reach me  you can simply gmail me 
